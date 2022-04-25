@@ -1,6 +1,6 @@
 <h2> Ingredients </h2>
 <br>  
-__2 medium aubergines__<br>
+2 medium aubergines<br>
 70 g Tahini – 2-3 tbsp<br>
 juice of 2 lemons<br>
 1 Garlic clove<br>
