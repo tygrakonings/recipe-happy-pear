@@ -1,13 +1,13 @@
 <h2> Ingredients </h2>
 <br>  
-**2 medium aubergines**<br>
+__2 medium aubergines__<br>
 70 g Tahini – 2-3 tbsp<br>
 juice of 2 lemons<br>
 1 Garlic clove<br>
 1 tbsp Olive oil<br>
 1 tsp salt<br>
 Pinch ground pepper<br>
-¼ tsp Sumac or chilli powder- optional**<br>
+¼ tsp Sumac or chilli powder- optional<br>
 
 <h2> Instructions </h2>
 <br>
